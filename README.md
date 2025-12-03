@@ -11,5 +11,6 @@ some things to note:
 - i don't cater to touch triggers that much, sorry
 - i am in the regiment community! i'm currently an enlisted in FAR, an NCO in Spitfires and a CO in the Sakura Brigade. love you guys so much!
 
-> please be my friend! i love talking to people and i'm actively seeking new friends.. so whisper if we have a lot in common! 
+> please be my friend! i love talking to people and i'm actively seeking new friends.. so whisper if we have a lot in common! i have discord and would be happy to give it 
+
 ![.](https://64.media.tumblr.com/ea6317fa9b0c96ea9d84d23432712ea5/a9d8576d3ee78291-88/s2048x3072/7ffd44dadcf36b7e46a22f3b525cc7e13d7517f9.pnj)
