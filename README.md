@@ -1,8 +1,8 @@
-![.](https://64.media.tumblr.com/5eafc9121e6ee62ac9a65c0e1ccb2225/aed4e31d7e90ee90-4b/s2048x3072/1c906ed6562caac242a0e3bbce83df0a44c8c70a.pnj)
+![.](https://64.media.tumblr.com/ea6317fa9b0c96ea9d84d23432712ea5/a9d8576d3ee78291-88/s2048x3072/7ffd44dadcf36b7e46a22f3b525cc7e13d7517f9.pnj)
 
-hi, i'm cube! or zero or ezra, whatever you know me best as!  ![.](https://64.media.tumblr.com/90491d2b2ff6ccc9dce2f8b632a0ba65/143064109ef441b0-5b/s75x75_c1/ad5e55c69fee6e55096b4a8ae346c1757678a89f.gifv)
+hi, i'm cube! ezra or zero work too, whatever you know me best as! ![.](https://64.media.tumblr.com/b9ca780ffca7db2f7cfbc232deb0abd9/e95425e74245493d-4d/s75x75_c1/ec5bf9f035c2bc3794279baf3e2e23e52b09c9fc.gifv)
 
-i cannot stress this enough read my rentry for more info. i'm so lazy. pony town please fucking add a bio option. i don't need this account
+***i cannot stress this enough read my rentry for more info***. i'm so lazy. pony town please fucking add a bio option. i don't need this account
 
 some things to note:
 - i'm usually above the benches at docks, safe server 1. i'm *almost always* in a skin of my various sonas. or romeo from minecraft storymode (current obssession rn)
@@ -11,6 +11,5 @@ some things to note:
 - i don't cater to touch triggers that much, sorry
 - i am in the regiment community! i'm currently an enlisted in FAR, an NCO in Spitfires and a CO in the Sakura Brigade. love you guys so much!
 
-> please be my friend! i love talking to people and i'm actively seeking new friends.. so whisper if we have a lot in common!
-
-![.](https://64.media.tumblr.com/5eafc9121e6ee62ac9a65c0e1ccb2225/aed4e31d7e90ee90-4b/s2048x3072/1c906ed6562caac242a0e3bbce83df0a44c8c70a.pnj)
+> please be my friend! i love talking to people and i'm actively seeking new friends.. so whisper if we have a lot in common! 
+![.](https://64.media.tumblr.com/ea6317fa9b0c96ea9d84d23432712ea5/a9d8576d3ee78291-88/s2048x3072/7ffd44dadcf36b7e46a22f3b525cc7e13d7517f9.pnj)
