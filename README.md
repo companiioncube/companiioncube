@@ -1,6 +1,6 @@
 ![.](https://64.media.tumblr.com/ea6317fa9b0c96ea9d84d23432712ea5/a9d8576d3ee78291-88/s2048x3072/7ffd44dadcf36b7e46a22f3b525cc7e13d7517f9.pnj)
 
-hi, i'm cube! ezra or zero work too, whatever you know me best as!
+hi, i'm cube! ezra or zero work too, whatever you know me best as!!
 
 ***i cannot stress this enough read my rentry for more info***. i'm so lazy. pony town please fucking add a bio option. i don't need this account
 
