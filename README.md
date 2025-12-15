@@ -1,6 +1,6 @@
 ![.](https://64.media.tumblr.com/ea6317fa9b0c96ea9d84d23432712ea5/a9d8576d3ee78291-88/s2048x3072/7ffd44dadcf36b7e46a22f3b525cc7e13d7517f9.pnj)
 
-hi, i'm cube! ezra or zero work too, whatever you know me best as! ![.](https://64.media.tumblr.com/b9ca780ffca7db2f7cfbc232deb0abd9/e95425e74245493d-4d/s75x75_c1/ec5bf9f035c2bc3794279baf3e2e23e52b09c9fc.gifv)
+hi, i'm cube! ezra or zero work too, whatever you know me best as!
 
 ***i cannot stress this enough read my rentry for more info***. i'm so lazy. pony town please fucking add a bio option. i don't need this account
 
@@ -9,7 +9,7 @@ some things to note:
 - i don't care who interacts i'm pretty chill with most things honestly? i kinda don't gaf. though **i won't hesitate to hide you if i think you're annoying**. i'm talking openly incestuous skins or if you're like 13. sorry, nothing personal. ok? ok
 - you can cuddle or hide behind me regardless if i know you or not. i do not care. whispers and crowns and all that are welcome
 - i don't cater to touch triggers that much, sorry
-- i am in the regiment community! i'm currently an enlisted in FAR, an NCO in Spitfires and a CO in the Sakura Brigade. love you guys so much!
+- i am in the regiment community! i'm currently an enlisted in the Farlanders, an NCO in Spitfires and a CO in the Sakura Brigade. love you guys so much!
 
 > please be my friend! i love talking to people and i'm actively seeking new friends.. so whisper if we have a lot in common! i have discord and would be happy to give it 
 
